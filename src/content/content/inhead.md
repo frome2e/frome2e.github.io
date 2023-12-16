@@ -1,8 +1,8 @@
 # In summit
 
-## What is the Bible primarily about?
-
 > In summit shaped God the heavens and the earth.
+
+## What is the Bible primarily about?
 
 I'm currently learning biblical Hebrew and of course trying to memorize and study the Bible in its original tongue.
 

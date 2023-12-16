@@ -1,6 +1,6 @@
 # In summit
 
-> In summit shaped God the heavens and the earth.
+> In summit shaped God the heavens and the earth. - Genesis 1:1
 
 ## What is the Bible primarily about?
 

@@ -1,11 +1,24 @@
 # In summit
 
+## What is the Bible primarily about?
+
 > In summit shaped God the heavens and the earth.
 
-The Bible begins with this verse.
+I'm currently learning biblical Hebrew and of course trying to memorize and study the Bible in its original tongue.
 
-While in English it does read "In the beginning God created the heavens and the earth" this isn't an entirely accurate translation of the verse.
+This of course lead me to Genesis 1:1. The first verse of the Bible where I learnt that there can be different ways to interpret the verse.
 
-The verse does suggest that in the beginning God created the heavens and the earth but that's not what it says.
+The direct word for word translation of the first verse of the Bible is.
 
-A more accurate word for word translation of the verse would be "In chief God shaped the heavens and the earth"
+> In summit shaped God the heavens and the earth
+
+I know you're wondering how is this and 
+
+> In the beginning God created the heavens and the earth 
+
+the same thing but stick with me for a bit.
+
+## In summit
+
+The word summit in Hebrew means what it does in English.
+It means the top, the peak, the chief or the choicest, the best. Like if I say the chief
